@@ -52,6 +52,6 @@ Sales by Country | Order Quantity by Channel | Order Quantity by Category
 
 ![](Thank_you.jpg)
 
-Click [here](www.linkedin.com/in/kolapoiyanuoluwa) to follow me on Linkedln
+Click [here](https://www.linkedin.com/in/kolapoiyanuoluwa/) to follow me on Linkedln
 
 
